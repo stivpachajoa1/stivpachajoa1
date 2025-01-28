@@ -8,7 +8,7 @@
 
 <br><br>
 
-- Amateur programmer, who likes to create and develop.
+- Programmer, who likes to create and develop.
 - Curious person, willing to learn more and explore new technologies.
 - Outside of technology, I enjoy making artistic expressions.
 - How to reach me **stivpachajoa@gmail.com**
